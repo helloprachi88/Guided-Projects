@@ -1,0 +1,1 @@
+Gained hands-on experience in analyzing business workflows, automating repetitive processes, and designing solutions that improve productivity, operational efficiency, and overall business performance.
